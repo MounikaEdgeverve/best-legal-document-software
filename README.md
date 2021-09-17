@@ -18,7 +18,7 @@ Also, our product coordinates with your work process and doesn't expect paralega
 
 Why We Recommend Document Management Software
 
-Best Legal Document Software (https://www.edgeverve.com/artificial-intelligence/nia/nia-contracts-analysis/]
+Best Legal Document Software ( https://www.edgeverve.com/artificial-intelligence/nia/nia-contracts-analysis/
 ) comprehends law offices. organizers and fashioners are lawyers themselves and have spent incalculable hours working straightforwardly with law offices to structure around the one-of-a-kind prerequisites of lawful practice. 
 
 Stab at similarity with your other legitimate programming while at the same time giving you an instinctive file organizer interface. Alongside coordinated examining and PDF the board, search abilities, and a design that is simple and agreeable, in any event, for fledglings, authoritative report the executives will improve on the manner in which you work and assist your firm with accomplishing top effectiveness.
